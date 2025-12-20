@@ -1,6 +1,6 @@
 # Hi, I'm Ali :)
 
-I'm a multimedia artist based in New York. This is where you can find most of the web projects that I’ve worked on or am currently working on. Feel free to look around! ✨ 
+I’m a multimedia artist based in New York. Here you’ll find a selection of web projects I’ve worked on and ones currently in progress. Feel free to explore! ✨ 
 
-And also feel free to reach out to collaborate or anything else! 💫  
-work@ali001.com 🔗
+You’re also welcome to reach out for collaborations or other inquiries:
+🔗 work@ali001.com 🔗
